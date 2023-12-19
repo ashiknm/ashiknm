@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ashik @ashiknm
-- i am pursuing B.Tech in computer science.
+- i am a software engineer.
 - i alwayas wonder about the world around me, and thoughts within me.
 - we don't have any war to win, and goal to achieve, but have the life to live.
 - everyone has their own choice to make, but no one dare to face it.
